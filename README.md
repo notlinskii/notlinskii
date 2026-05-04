@@ -9,7 +9,7 @@
  <p align="center">
  ★. Not online that much, I take breaks alot.
    <p align="center">
- ★. Not really making any close friends anymore on pt, just here to hang around yk!!
+ ★. Just here to hang around yk!!
    <p align="center">
  ★. Feel Free to talk to (especially about obsessions)!! Im very friendly, but usually quiet.
  <p align="center">
