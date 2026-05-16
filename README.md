@@ -15,4 +15,6 @@
  <p align="center">
  ★. Feel free to read strawpage!!
   
-<img width="735" height="409" alt="image" src="https://github.com/user-attachments/assets/7e2a7c91-3038-45b5-8d10-7b272dab3de7" />
+<img width="978" height="872" alt="image" src="https://github.com/user-attachments/assets/5f455e14-08ab-416a-aac9-1f8425e84e68" />
+<img width="963" height="436" alt="image" src="https://github.com/user-attachments/assets/f6ea30e3-2fed-4ca5-aaa6-32e5123e43f4" />
+
