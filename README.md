@@ -1,9 +1,11 @@
+<img width="144" height="54" alt="cd-player-stereo" src="https://github.com/user-attachments/assets/97b46c15-86b3-41c7-977e-ecb105259691" />
 <p align="center">
-<img width="668" height="206" alt="Screenshot 2026-01-23 185131" src="https://github.com/user-attachments/assets/0d36617a-940e-4b7d-a1ee-3274517eadab" />
+<img width="800" height="370" alt="ScreenRecording_05-13-2026_20-06-41_1" src="https://github.com/user-attachments/assets/84317b06-f423-4eec-8a15-a03bbd67143d" />
 <p align="center">
  𝄞𝄢 :: Nice to meet you!! I'm Lin :3 
  <p align="center">
- ★. She/Her/Hers
+ ★. ♀ She/Her/Hers . Scorpio<img
+  <img width="30" height="30" alt="fjifji" src="https://github.com/user-attachments/assets/40f99fa0-2f30-49c2-b21e-a4dc2c4e27bd" />
   <p align="center">
  ★. current obsessions: Hadestown, Percy Jackson, EPIC:The Musical, The Magnus Archives, X-Men, Hades, Smiling Friends, The Hunger Games, The Outsiders, ect . . .
  <p align="center">
@@ -14,7 +16,6 @@
  ★. Feel Free to talk to (especially about obsessions)!! Im very friendly, but usually quiet.
  <p align="center">
  ★. Feel free to read strawpage!!
-  
-<img width="978" height="872" alt="image" src="https://github.com/user-attachments/assets/5f455e14-08ab-416a-aac9-1f8425e84e68" />
-<img width="963" height="436" alt="image" src="https://github.com/user-attachments/assets/f6ea30e3-2fed-4ca5-aaa6-32e5123e43f4" />
+
+
 
