@@ -18,7 +18,7 @@
    <p align="center">
  ★. Feel Free to talk to (especially about obsessions)!! Im very friendly, but usually quiet.
  <p align="center">
- ★. Feel free to read strawpage for more info!!
+ ★. Feel free to read my links for more info!!
   
 <p align="center">
 <img width="1280" height="67" alt="tumblr_09d29d321568ce2ac6a7d010f2090e25_00f7446c_1280" src="https://github.com/user-attachments/assets/2a657acd-0240-422c-a429-caa7ba8dc7c4" />
