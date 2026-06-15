@@ -6,11 +6,22 @@
 <p align="center"> 
  <p align="center">
 <img width="1280" height="67" alt="tumblr_09d29d321568ce2ac6a7d010f2090e25_00f7446c_1280" src="https://github.com/user-attachments/assets/2a657acd-0240-422c-a429-caa7ba8dc7c4" />
- 𝄞𝄢 :: Nice to meet you!! I'm Lin <img width="20" height="20" alt="kokoko" src="https://github.com/user-attachments/assets/4821ce76-b625-4e54-9e47-3cbe2fc91aef" /> 
-  <img width="30" height="30" alt="fjifji" src="https://github.com/user-attachments/assets/40f99fa0-2f30-49c2-b21e-a4dc2c4e27bd" /> 
+ 
+</div>
+<div align="center">
   
+$${\color{#dfddc7} 𝄞𝄢 :: Nice}$$ 
+$${\color{#dfddc7} to }$$ 
+$${\color{#bfbfbf} meet }$$ 
+$${\color{#bfbfbf} you!!}$$ 
+$${\color{#7f8cb5}I'm}$$  
+ $${\color{#7f8cb5}Lin⠀}$$ 
+ <a href>
+</div>
+
 <p align="center">
- ★. ♀ She/Her/Hers . Scorpio
+ ★. ♀ She/Her/Hers . Scorpio <img width="20" height="20" alt="kokoko" src="https://github.com/user-attachments/assets/4821ce76-b625-4e54-9e47-3cbe2fc91aef" /> 
+  <img width="30" height="30" alt="fjifji" src="https://github.com/user-attachments/assets/40f99fa0-2f30-49c2-b21e-a4dc2c4e27bd" /> 
   <p align="center">
  ★. current obsessions: Hadestown, Percy Jackson, EPIC:The Musical, The Magnus Archives, X-Men, Hades, Smiling Friends, The Hunger Games, The Outsiders, ect . . .
  <p align="center">
@@ -33,4 +44,5 @@
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/d5956d60-427f-4570-b937-7735c6922e9f" />
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/e9b85bb3-293d-48f3-8bef-c79229347031" />
 <img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/e885085a-763c-4906-a75c-cf81c60b1704" />
+
 
