@@ -1,4 +1,4 @@
-<img width="1300" height="100" alt="tumblr_55f54b0a70a00951d68f91d9bdda44f5_5e755ff9_2048" src="https://github.com/user-attachments/assets/b6016650-05da-4652-9eb2-a93ce03a5da6" />
+
 
 <p align="center">
 <img width="700" height="270" alt="ScreenRecording_05-13-2026_20-06-41_1" src="https://github.com/user-attachments/assets/84317b06-f423-4eec-8a15-a03bbd67143d" />
