@@ -23,7 +23,7 @@ $${\color{#7f8cb5}I'm}$$
  ★. ♀ She/Her/Hers . Scorpio <img width="20" height="20" alt="kokoko" src="https://github.com/user-attachments/assets/4821ce76-b625-4e54-9e47-3cbe2fc91aef" /> 
   <img width="30" height="30" alt="fjifji" src="https://github.com/user-attachments/assets/40f99fa0-2f30-49c2-b21e-a4dc2c4e27bd" /> 
   <p align="center">
- ★. current obsessions: Hadestown, Percy Jackson, EPIC:The Musical, The Magnus Archives, X-Men, Daredevil/DDBA Hades, The Hunger Games, The Outsiders, ect . . .
+ ★. current obsessions: Hadestown, Percy Jackson, EPIC:The Musical, The Magnus Archives, X-Men, Daredevil/DDBA, Hades, The Hunger Games, The Outsiders, ect . . .
  <p align="center">
  ★. I take breaks alot !! Im not online all the time!!
    <p align="center">
