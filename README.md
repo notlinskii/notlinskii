@@ -29,7 +29,7 @@ $${\color{#7f8cb5}I'm}$$
    <p align="center">
  ★. Feel Free to talk to (especially about obsessions)!! Im very friendly, but usually quiet.
  <p align="center">
- ★. Feel free to read my links for more info!!
+ ★. Feel free to read my links for more info!! ( I UPDATE THEM INCONSISTENTLY )
   
 <p align="center">
 <img width="2000" height="200" alt="image" src="https://github.com/user-attachments/assets/893beb9a-88fd-4996-a990-4e94caaaed1e" />
